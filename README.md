@@ -8,10 +8,10 @@
   <img src="https://github.com/hyacinthias/hyacinthias/blob/main/Untitled24.png" />
 </p>
   
-<p align="center"> • ┈ • ┈ • ୨୧ • ┈ • ┈ •  <a>
+<p align="center"> ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ <a>
 
 
 ###### <p align="center"> ᴛʜᴇ ᴅᴏᴄᴛᴏʀ </p>
 
 
-<p align="center"> • ┈ • ┈ • ୨୧ • ┈ • ┈ •  <a>
+<p align="center"> ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔  <a>
