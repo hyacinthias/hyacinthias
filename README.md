@@ -1,7 +1,7 @@
 #### <p align="center"> ＞ " ʏᴇᴀʜ... ʏᴇᴀʜ... ʏᴇᴀʜ ᴏꜰ ᴄᴏᴜʀsᴇ ,, ＜ </p>
-<p align="center">
-
-![](https://komarev.com/ghpvc/?username=hyacinthias&abbreviated=true)
+<p align="center"> 
+  
+  ![](https://komarev.com/ghpvc/?username=hyacinthias&abbreviated=true)
   
   <img src="https://github.com/hyacinthias/test/blob/main/chudganssilas.png" />
 </p>
