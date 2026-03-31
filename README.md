@@ -1,7 +1,7 @@
 #### <p align="center"> ＞ " ʏᴇᴀʜ... ʏᴇᴀʜ... ʏᴇᴀʜ ᴏꜰ ᴄᴏᴜʀsᴇ ,, ＜ </p>
 <p align="center"> 
   
-  ![](https://komarev.com/ghpvc/?username=hyacinthias&abbreviated=true)
+  ![](https://komarev.com/ghpvc/?username=hyacinthias&abbreviated=true&style=plastic&color=284F58)
   
   <img src="https://github.com/hyacinthias/hyacinthias/blob/main/Untitled24.png" />
 </p>
