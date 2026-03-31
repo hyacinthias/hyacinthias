@@ -8,6 +8,8 @@
   
   <p align="center"> <a href="https://princesszskyla.atabook.org/"> ᴀᴛᴀʙᴏᴏᴋ<a> <a href="https://ivoryyz.straw.page/"> sᴛʀᴀᴡᴘᴀɢᴇ<a><a href="https://pronouns.cc/@hyacinthia"> ᴘʀᴏɴᴏᴜɴs<a>
     
+   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Pixelify+Sans&size=25&duration=5001&pause=990&color=6393C299&multiline=true&width=435&lines=%22may+our+next+lives+be+kinder.%22)](https://git.io/typing-svg)
+    
   <img src="https://github.com/hyacinthias/hyacinthias/blob/main/Untitled24.png" />
 </p>
   
