@@ -12,7 +12,7 @@
 
   </div>
   
-  <p align="center"> <a href="https://princesszskyla.atabook.org/"> ᴀᴛᴀʙᴏᴏᴋ<a> <a href="https://ivoryyz.straw.page/"> sᴛʀᴀᴡᴘᴀɢᴇ<a><a href="https://pronouns.cc/@hyacinthia"> ᴘʀᴏɴᴏᴜɴs<a>
+  <p align="center"> <a href="https://princesszskyla.atabook.org/"> atabook<a> <a href="https://hyacinthia0s.straw.page/"> strawpage<a><a href="https://pronouns.cc/@hyacinthia"> pronouns<a>
     
    <div align="center">
     
