@@ -12,7 +12,6 @@
 
   </div>
   
-  <p align="center"> <a href="https://princesszskyla.atabook.org/"> atabook<a> <a href="https://hyacinthia0s.straw.page/"> strawpage<a><a href="https://pronouns.cc/@hyacinthia"> pronouns<a> <a href="https://hyacinthia0s.carrd.co/#"> carrd <a>
     
    <div align="center">
     
@@ -23,6 +22,8 @@
     
  <img src="https://github.com/hyacinthias/hyacinthias/blob/main/Untitled24.png" />
     
+  　 　　  　　 　　  [_ata_](https://princesszskyla.atabook.org/) 　 　 𓏲 ๋࣭  ࣪ ˖　 　 [_strawpage_](https://hyacinthia0s.straw.page/) 　 　 ﹒﹒﹒ִֶָ🪽་༘　 　 [_prn.cc_](https://pronouns.cc/@hyacinthia) 　 　 🕸️๋࣭ ⭑　 　 [_carrd_](https://hyacinthia0s.carrd.co/#) 
+   　 　
   
 </p>
   
