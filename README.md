@@ -11,11 +11,6 @@
    ![](https://github.com/hyacinthias/hyacinthias/blob/main/silly%20saps.webp)
 
   </div>
-  
-    
-   <div align="center">
-    
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Pixelify+Sans&size=25&duration=5001&pause=990&color=6393C299&multiline=true&width=435&lines=%22may+our+next+lives+be+kinder.%22)](https://git.io/typing-svg) 
     
   </div>
 
@@ -23,7 +18,7 @@
     
  <img src=https://github.com/hyacinthias/hyacinthias/blob/main/chungussilas1.png />
 
- <p align="center"> $\color{#345363}{\textsf{don't wanna live a life that is comprehensive}}$ </p>
+ <p align="center"> $\color{#345363}{\textsf{don't wanna live a life that is 𝙘𝙤𝙢𝙥𝙧𝙚𝙝𝙚𝙣𝙨𝙞𝙫𝙚}}$ </p>
  
    　 　　  　　 　　  　　　 　　　  .
                          
