@@ -18,19 +18,24 @@
   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Pixelify+Sans&size=25&duration=5001&pause=990&color=6393C299&multiline=true&width=435&lines=%22may+our+next+lives+be+kinder.%22)](https://git.io/typing-svg) 
     
   </div>
-   
+
+  <p align="center"> $\color{#405F7D}{\textsf{it's not fair! just let me perfect it}}$ </p>
     
- <img src="https://github.com/hyacinthias/hyacinthias/blob/main/Untitled24.png" />
-    
+ <img src=https://github.com/hyacinthias/hyacinthias/blob/main/chungussilas1.png />
+
+ <p align="center"> $\color{#345363}{\textsf{don't wanna live a life that is comprehensive}}$ </p>
+ 
+   　 　　  　　 　　  　　　 　　　  .
+                         
   　 　　  　　 　　  [_ata_](https://princesszskyla.atabook.org/) 　 　 𓏲 ๋࣭  ࣪ ˖　 　 [_strawpage_](https://hyacinthia0s.straw.page/) 　 　 ﹒﹒﹒ִֶָ🪽་༘　 　 [_prn.cc_](https://pronouns.cc/@hyacinthia) 　 　 🕸️๋࣭ ⭑　 　 [_carrd_](https://hyacinthia0s.carrd.co/#) 
    　 　
   
 </p>
   
-<p align="center"> ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ <a>
+<p align="center"> ﹌﹌﹌﹌﹌﹌﹌﹌ <a>
 
 
 ###### <p align="center"> ᴛʜᴇ ᴅᴏᴄᴛᴏʀ </p>
 
 
-<p align="center"> ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔  <a>
+<p align="center"> ﹌﹌﹌﹌﹌﹌﹌﹌  <a>
