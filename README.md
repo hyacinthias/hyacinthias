@@ -14,11 +14,11 @@
     
   </div>
 
-  <p align="center"> $\color{#405F7D}{\textsf{it's not fair! just let me perfect it}}$ </p>
+  <p align="center"> $\color{#405F7D}{\textsf{'it's not fair! just let me perfect it'}}$ </p>
     
  <img src=https://github.com/hyacinthias/hyacinthias/blob/main/chungussilas1.png />
 
- <p align="center"> $\color{#345363}{\textsf{don't wanna live a life that is 𝙘𝙤𝙢𝙥𝙧𝙚𝙝𝙚𝙣𝙨𝙞𝙫𝙚}}$ </p>
+ <p align="center"> $\color{#345363}{\textsf{'don't wanna live a life that is 𝙘𝙤𝙢𝙥𝙧𝙚𝙝𝙚𝙣𝙨𝙞𝙫𝙚'}}$ </p>
  
    　 　　  　　 　　  　　　 　　　  .
                          
